@@ -1,1 +1,1 @@
-# A1
+# Idea_Seminar
